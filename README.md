@@ -5,6 +5,7 @@
 ### About Me
 
 I enjoy slamming the keyboard with my little raccoon fingers in order to make stuff happen - it brings joy! ദ്ദി(｡•̀ ,<)~✩‧₊ <br>
+I am hoping to get into programming or cyber security ᕙ(  ò ᗜ ó  )ᕗ <br>
 In my free time I like reading (books, manga, manhwa, you name it), watching anime, tending to my kitties and plants and taking long walks by the random local stream ✨✨✨<br>
 I also partake in some gaming here and there, with RPGs, MMOs and VNs being my favourites ദ്ദി ˉ͈̀꒳ˉ͈́ )✧ <br>
 
